@@ -1,6 +1,5 @@
 # Tittle
 ancnmimkmmdkm
-ndjnddjijdndj
-sndndndnndd
+ndjnddjijdnd
 
 ##SubTittle
